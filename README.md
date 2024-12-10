@@ -1,0 +1,1 @@
+# Efecto-uniones-y-espesores-en-resistencia
